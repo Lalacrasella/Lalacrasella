@@ -4,7 +4,7 @@ Muppet and garfield enthusiast :3<
 
 brighton student
 
-prns: She/ they 
+
 
 ![OIP](https://github.com/user-attachments/assets/fda8538d-b9db-4a97-bd39-9116bc188eb8)
 
