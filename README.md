@@ -2,7 +2,7 @@ Hii, My names Lalacar󠁧󠁢 🌸
 
 Muppet and garfield enthusiast :3<
 
-brighton student
+brighton based
 
 
 
